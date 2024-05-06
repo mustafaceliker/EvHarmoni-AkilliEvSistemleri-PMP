@@ -1,0 +1,1 @@
+# "EvHarmoni:Akıllı Ev Sistemleri" is an artificial project management plan integration. It also includes risk planning and scheduling. This PMP is completely applicable to life; It reflects a real PMP.
